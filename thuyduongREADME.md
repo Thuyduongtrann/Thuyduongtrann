@@ -1,0 +1,2 @@
+- 👋 Hi, I’m thuyduongtrann_ 
+- 👀 I have graduated from HCMUE with the major in Japanese language
